@@ -21,6 +21,6 @@
 
 ### 📫 How to reach me:
 - *LinkedIn:* [Soni Shaw](https://www.linkedin.com/in/soni-shaw)  
-- *GitHub:* [sonishawsonishaw](https://github.com/sonishaw3)
+- *GitHub:* [sonishawsonishaw](https://github.com/sonishaw9903)
 ### ⚡ Fun fact:
 I enjoy *learning new technologies* and improving my *spoken English* every day!
