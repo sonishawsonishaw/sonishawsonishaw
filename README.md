@@ -20,7 +20,7 @@
 - My journey from *Civil Engineering to B.Tech IT*  
 
 ### 📫 How to reach me:
-- *LinkedIn:* [Soni Shaw](https://www.linkedin.com/in/soni-shaw)  
+- *LinkedIn:* [Soni Shaw](https://www.linkedin.com/in/DJHalder9903)  
 - *GitHub:* [sonishawsonishaw](https://github.com/www.linkedin.com/in/sonishaw9903)
 ### ⚡ Fun fact:
 I enjoy *learning new technologies* and improving my *spoken English* every day!
